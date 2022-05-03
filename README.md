@@ -6,7 +6,7 @@
 Thi's apk only for educational purposess Don't use this application for illegal activities
 
 
- APK LINK { https://bit.ly/CYBER-3G-WHATSAPP-NUMBER-BANNER }
+ APK LINK {https://bit.ly/CYBER-3G-WHATSAPP-NUMBER-BANNER}
            
            
            
